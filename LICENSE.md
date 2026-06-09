@@ -1,4 +1,4 @@
-# 
+# Último TreeSize plugins para Mac OS | Exclusivo TreeSize plugins para PC Windows. Con sistema de notificaciones y automatización del sistema — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
